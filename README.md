@@ -1,2 +1,4 @@
 # seba.modernancient.org
-SEBA: Artist Collective 
+
+Home of the SEBA Artist Collective
+Truth or Consequences, NM
